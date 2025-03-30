@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @Yugyy16
-- 👀 I’m interested in learning coding
-- 🌱 I want to start learning
-- 💞️ I’m looking to collaborate on with anyone
+- 👀 I’m looking to collaborate on with anyone
 - 📫 How to reach me .. 
 
 <!---
