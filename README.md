@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Yugyy16
+- 👋 Hi, I’m @Yug
 - 👀 I’m looking to collaborate on with anyone
 - 📫 How to reach me .. 
 
